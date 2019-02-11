@@ -51,4 +51,4 @@ For more details , please call us.
 
 ### 加入我们   join  us
 - 我们欢迎优秀财务人员的加入，为您提供全职/兼职就业机会.
-- 简历请投递至：
+- 简历请投递至：lianxi@hilldu.com
